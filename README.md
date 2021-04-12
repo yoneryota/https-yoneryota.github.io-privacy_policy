@@ -1,1 +1,1 @@
-# kids_roomのprivacy_policy
+kids_roomのprivacy_policy
