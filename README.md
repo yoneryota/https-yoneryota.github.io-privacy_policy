@@ -1,1 +1,1 @@
-# https-yoneryota.github.io-privacy_policy
+# kids_roomのprivacy_policy
